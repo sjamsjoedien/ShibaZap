@@ -1,3 +1,6 @@
+---------THIS TOKEN IS PREMATURE PROJECT, DONT INVEST YOUR MONEY---------------
+
+
 Token Name: ShibaZap (SZAP)
 
 Description for Pump.Fun:
